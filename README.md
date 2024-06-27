@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @hithashreedevadiga
+- 👀 I’m interested in music and even data science a bit
+- 🌱 I’m currently learning artificial intelligence and data science
+- 💞️ I’m looking to collaborate on different datascience and machine learning projects
+- 📫 How to reach me : https://www.linkedin.com/in/hithashree-devadiga-183641268?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
+- 😄 Pronouns me as Hitha
+- ⚡ Fun fact: yeah i like to work with data's
